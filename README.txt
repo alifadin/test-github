@@ -1,1 +1,1 @@
-Ini percobaan tanpa tutor.
+Ini percobaan tanpa tutor
